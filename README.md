@@ -1,0 +1,4 @@
+Waterproof-scale-SU
+===================
+
+Waterproof scaleCapacity: 1.5kg,3kg, 6kg, 15kg, 30kgStructure of full stainess steelprecision up to 1/15000Super shock-resistantselect single or three points to calibrate, and can modify the acceleration due to gravity. SU-1.5SU-3SU-6SU-15SU-30CAPACITY1.5kg3kg6kg15kg30kgMin. weight 20ecalibration division e0.5g1g2g5g10greading divisiton d10.2g0.5g1g2g5greading division d20.1g0.2g0.5g1g2gMax. weight of tare 100% of the capacityprecision class Ⅲdimension 19×23cm3powerbattery of 6V4.5A，can recharge power by a inside rechargerworking temperature-5~35℃ stock temperature -25~+50℃N.W. 3.9kg/sethttp://www.hzloadcell.com/pid11501383/Waterproof+scale-SU.htm
